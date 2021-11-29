@@ -402,5 +402,4 @@ Se possível:
 
 ------------
 
-Disponibilizado com ♥ por [cami-la](https://www.linkedin.com/in/cami-la/ "cami-la").
-
+![](https://hermes.digitalinnovation.one/certificates/cover/9B73BF35.jpg)
